@@ -1,7 +1,2 @@
-hi im kait
-
-im extrordinarily dumb and i cant even make something without accidentally deleting it
-
-i dont really have any public points of contact
-
-ok bye
+UPDATE: I AM A PERFECT DIVINE BEING AND I CANNOT MAKE ANY MISTAKES  
+ALL I SAY OR DO IS PERFECT AND TRUE
